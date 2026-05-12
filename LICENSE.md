@@ -1,4 +1,4 @@
-#  
+#  Ulysses for macOS advanced Automation: AI assistant & widgets offers the most advanced Ulysses for macOS automation, with AI assistant and widgets. Ideal for professionals.
 
 
 
